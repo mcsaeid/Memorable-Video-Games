@@ -105,7 +105,7 @@ Now 2013, I remember vividly. I _loved_ it. I am a huge _Splinter Cell_ fan, so 
   <img src="https://user-images.githubusercontent.com/63400670/135331628-8f706df9-8af9-4c9c-ab9b-e4312ccb7c42.png" alt="Grand Theft Auto V"/>
 </p>
 
-_Grand Theft Auto V_ on PlayStation 3 was great too, but at the time, I was still drawn to _IV_. It was only in July of 2020 when I did a second playthrough that I completely fell in love with it. Now every time I want to relax, I hop into my favorite SUV, drive around, and listen to the radio.
+[_Grand Theft Auto V_](https://twitter.com/mcsaeid/status/1323686385627353091) on PlayStation 3 was great too, but at the time, I was still drawn to _IV_. It was only in July of 2020 when I did a second playthrough that I completely fell in love with it. Now every time I want to relax, I hop into my favorite SUV, drive around, and listen to the radio.
 
 _Beyond: Two Souls_ was another memorable experience with great performances from Elliot Page and Willem Dafoe and an incredibly touching narrative, just as you would expect from the creators of _Heavy Rain_ and _Indigo Prophecy_ (known outside of the US as _Fahrenheit_).
 
@@ -129,7 +129,7 @@ It was the year _Deus Ex: Human Revolution_ introduced me to role-playing games 
 
 I still reminisce about _Skyrim_ and how wonderful it felt to be immersed in a world of fantasy. Bethesda truly did a magnificent job. Since I have played both _Skyrim_ and _Oblivion_ but never _Morrowind_, I think it is best if I try that for a change. And we had _Portal 2_, by Valve, which is considered one of the best video games ever made.
 
-_Uncharted 3_ and _Call of Duty: Modern Warfare 3_, as well as _Batman: Arkham City_, were all masterfully done as well. The further back we go, we see more and more masterpieces.
+_Uncharted 3_ and _Call of Duty: Modern Warfare 3_, as well as _Batman: Arkham City_, were all masterfully done as well. The further back we go, we will see more and more masterpieces.
 
 # 2010
 <p align="center">
