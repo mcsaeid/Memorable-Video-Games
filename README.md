@@ -7,9 +7,9 @@ Each individual collage features twelve prominent games of the same year, follow
   <img src="https://user-images.githubusercontent.com/63400670/135310846-3d32d556-42b3-4210-87c8-5fe1eba26ac4.png" alt="Collage"/>
 </p>
 
-In addition, if you wish to download the high-quality images, check out the files in the repository or this [MediaFire folder](https://www.mediafire.com/folder/esx58eewxcct2/Memorable_Video_Games).
+In addition, if you wish to download the high-quality images, check out the files in the [repository](https://github.com/mcsaeid/Memorable-Video-Games) or this [MediaFire folder](https://www.mediafire.com/folder/esx58eewxcct2/Memorable_Video_Games).
 
-Watch [Game Scoop! episode 642](https://youtu.be/y8fxvYHgNGc&list=PL99PCYdTX-vc_2yb9cnTYyqgiO5ujqp2R&t=2229s) for a pleasant surpise.
+Watch [Game Scoop! episode 642](https://youtu.be/y8fxvYHgNGc&list=PL99PCYdTX-vc_2yb9cnTYyqgiO5ujqp2R&t=2229s) for a pleasant surprise.
 
 # 2020
 <p align="center">
