@@ -47,7 +47,7 @@ Looking back, I have fallen in love with the _Forza_ series, and I have been dyi
 
 ### _Red Dead Redemption 2_
 <p align="center">
-  <img src="https://user-images.githubusercontent.com/63400670/135326735-f6e439bf-1902-4123-b40c-5e239d14d3aa.png" alt="Red Dead Redemption 2"/>
+  <img src="https://user-images.githubusercontent.com/63400670/135361018-92c54b45-a9c7-4d0d-b6fb-ec6858b36467.png" alt="Red Dead Redemption 2"/>
 </p>
 
 At the time of writing the original thread, I had only played a few hours of _Red Dead Redemption 2_, noting that it felt like quite an improvement over its predecessor. I still had it on my computer, and I was waiting for the right moment to jump back in. I finally did, [fourteen months later](https://twitter.com/mcsaeid/status/1283508320674942980), and it _blew_ my mind. I have since put in 100+ hours into the game, and I can see myself enjoying it for at least another fifty hours. I highly recommend reading “[_Red Dead Redemption 2_ Is True Art](https://www.nytimes.com/2018/11/23/opinion/sunday/red-dead-redemption-2-fallout-76-video-games.html)” by The New York Times.
@@ -72,7 +72,7 @@ I started playing _Little Nightmares_ not long ago, and even though the controls
 
 ### _Inside_
 <p align="center">
-  <img src="https://user-images.githubusercontent.com/63400670/135332455-a3b5fa8d-1b6f-4955-b0bd-1a437f50a17b.png" alt="Inside"/>
+  <img src="https://user-images.githubusercontent.com/63400670/135361032-f8ab7579-a64c-43a9-a8db-12275d42c2b2.png" alt="Inside"/>
 </p>
 
 [_Inside_](https://twitter.com/mcsaeid/status/1400948247670280194), on the other hand, was unbelievably good. I still think about it. It truly looks and feels like a game that George Orwell would have designed.
@@ -102,7 +102,7 @@ Now 2013, I remember vividly. I _loved_ it. I am a huge _Splinter Cell_ fan, so 
 
 ### _Grand Theft Auto V_
 <p align="center">
-  <img src="https://user-images.githubusercontent.com/63400670/135331628-8f706df9-8af9-4c9c-ab9b-e4312ccb7c42.png" alt="Grand Theft Auto V"/>
+  <img src="https://user-images.githubusercontent.com/63400670/135361169-af27ba89-ce77-4c75-a4f5-0ac93ebf669f.png" alt="Grand Theft Auto V"/>
 </p>
 
 [_Grand Theft Auto V_](https://twitter.com/mcsaeid/status/1323686385627353091) on PlayStation 3 was great too, but at the time, I was still drawn to _IV_. It was only in July of 2020 when I did a second playthrough that I completely fell in love with it. Now every time I want to relax, I hop into my favorite SUV, drive around, and listen to the radio.
