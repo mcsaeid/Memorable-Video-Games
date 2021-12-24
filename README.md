@@ -11,6 +11,15 @@ In addition, if you wish to download the high-quality images, check out the file
 
 Watch [Game Scoop! episode 642](https://youtu.be/y8fxvYHgNGc&list=PL99PCYdTX-vc_2yb9cnTYyqgiO5ujqp2R&t=2229s) for a pleasant surprise.
 
+# 2021
+<p align="center">
+  <img src="https://user-images.githubusercontent.com/63400670/147369893-a954b683-e670-4235-a4b4-e860ebadabf2.jpg" alt="2021"/>
+</p>
+
+2021 was kind of hot.
+
+Out of all the games above, I only played [_Twelve Minutes_](https://twitter.com/mcsaeid/status/1429035920351694851) in 2021. It is a fresh take on an old genre, and one that I got a kick out of. I very much look forward to catching up on all the other _Halo_ games so that I can finally dive into _Halo Infinite_.
+
 # 2020
 <p align="center">
   <img src="https://user-images.githubusercontent.com/63400670/135312941-f1cf5233-9608-49b2-8ecb-ad4a74597c23.jpg" alt="2020"/>
