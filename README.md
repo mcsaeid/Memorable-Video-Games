@@ -38,6 +38,8 @@ Being a PC gamer, though, I feel like I am missing on so many amazing games: _Th
 
 I also played _Resident Evil 3_, which I enjoyed.
 
+Read more about my experience with _Control_ [here](https://graph.org/Remedys-Control-A-Generation-Defining-Masterpiece-02-10).
+
 # 2019
 <p align="center">
   <img src="https://user-images.githubusercontent.com/63400670/135319254-74593d94-bbe8-41b8-a7e6-b7bf2cbdd799.jpg" alt="2019"/>
