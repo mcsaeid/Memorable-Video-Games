@@ -16,7 +16,7 @@ Watch [Game Scoop! episode 642](https://youtu.be/y8fxvYHgNGc&list=PL99PCYdTX-vc_
   <img src="https://user-images.githubusercontent.com/63400670/147369893-a954b683-e670-4235-a4b4-e860ebadabf2.jpg" alt="2021"/>
 </p>
 
-2021 was kind of hot.
+2021 was kind of hot!
 
 Out of all the games above, I only played [_Twelve Minutes_](https://twitter.com/mcsaeid/status/1429035920351694851) in 2021. It is a fresh take on an old genre, and one that I got a kick out of. I very much look forward to catching up on all the other _Halo_ games so that I can finally dive into _Halo Infinite_.
 
@@ -109,7 +109,7 @@ _Ori and the Blind Forest_ is high on my wishlist.
   <img src="https://user-images.githubusercontent.com/63400670/135320530-6285b26c-38e4-4980-8124-00756ec22a53.jpg" alt="2013"/>
 </p>
 
-Now 2013, I remember vividly. I _loved_ it. I am a huge _Splinter Cell_ fan, so it was very exciting to step back into Sam Fisher’s shoes with _Blacklist_, especially that it featured a mission in Tehran, Iran. Sadly, Michael Ironside wasn’t available to do Sam’s original voice.
+Now 2013 I remember vividly. I _loved_ it. I am a huge _Splinter Cell_ fan, so it was very exciting to step back into Sam Fisher’s shoes with _Blacklist_, especially that it featured a mission in Tehran, Iran. Sadly, Michael Ironside wasn’t available to do Sam’s original voice.
 
 ### _Grand Theft Auto V_
 <p align="center">
@@ -159,23 +159,23 @@ _Heavy Rain_ really was more than a video game for me. A decade later, I can sti
   <img src="https://user-images.githubusercontent.com/63400670/135320839-b7b7c999-6648-4911-86ef-3480c8ab4590.jpg" alt="2009"/>
 </p>
 
-2009 also ranks high in my book in that we saw awesome sequels to _Assassin’s Creed_, _Call of Duty: Modern Warfare_, and _Uncharted_. Unfortunately, I couldn’t finish _Batman: Arkham Asylum_ due to a technical bug, but I still enjoyed it very much, along with both _F.E.A.R. 2_ and _Resident Evil 5_.
+2009 also ranks high in my book in that we saw awesome sequels to _Assassin’s Creed_, _Call of Duty: Modern Warfare_, and _Uncharted_. Unfortunately, I couldn’t finish _Batman: Arkham Asylum_ due to a game-breaking bug, but I still enjoyed it very much, along with both _F.E.A.R. 2_ and _Resident Evil 5_.
 
 # 2008
 <p align="center">
   <img src="https://user-images.githubusercontent.com/63400670/135320851-88c1a222-ab42-4c02-b85f-1e246c5773d6.jpg" alt="2008"/>
 </p>
 
-Boy, did 2008 have some aces up its sleeve. _Grand Theft Auto IV_ **and** _Metal Gear Solid 4_? You can’t top that.
+Boy, did 2008 have some aces up its sleeve! _Grand Theft Auto IV_ _and_ _Metal Gear Solid 4_? You can’t top that.
 
-Fun fact: I bought my PlayStation 3 in 2010 solely for two reasons: _Heavy Rain_ and _Metal Gear Solid 4_.
+**Fun fact:** I bought my PlayStation 3 in 2010 solely for two reasons: _Heavy Rain_ and _Metal Gear Solid 4_.
 
 # 2007
 <p align="center">
   <img src="https://user-images.githubusercontent.com/63400670/135320863-a90d12df-5cf4-461d-aff7-54d425232b1f.jpg" alt="2007"/>
 </p>
 
-I think we can all agree that 2007 was one of the most fruitful years of the gaming industry. [Ryan McCaffrey](https://twitter.com/DMC_Ryan) of IGN said it best on [the 500th episode of the Unlocked podcast](http://youtu.be/WG84Sxjdy1Q?t=104).
+I think we can all agree that 2007 was one of the most fruitful years of the gaming industry. Ryan McCaffrey of IGN said it best on [the 500th episode of the Unlocked podcast](http://youtu.be/WG84Sxjdy1Q?t=104).
 
 # 2006
 <p align="center">
@@ -191,9 +191,9 @@ I will always remember 2006 with _Splinter Cell: Double Agent_, _25 to Life_, _C
   <img src="https://user-images.githubusercontent.com/63400670/135320896-2cca94a2-a08f-436a-95b6-1ef8b91d0892.jpg" alt="2005"/>
 </p>
 
-Oh, man. 2005 was so good. It was the year I bought [my very first computer](https://twitter.com/mcsaeid/status/1274802509152956418). Surely, it doesn’t get better than this.
+Oh, man. 2005 was so good. It was the year I bought [my very first computer](https://github.com/mcsaeid/Nostalgic-Video-Games#%D8%A7%D9%88%D9%84%DB%8C%D9%86-%DA%A9%D8%A7%D9%85%D9%BE%DB%8C%D9%88%D8%AA%D8%B1-1). Surely, it doesn’t get better than this.
 
-. . . Or does it?
+. . . Or _does it_?
 
 # 2004
 <p align="center">
@@ -209,7 +209,7 @@ I honestly can’t pick one. They are _all_ my favorites, especially the lesser-
   <img src="https://user-images.githubusercontent.com/63400670/135320918-9568721f-f449-4a0b-a3f4-65ab68ca473a.jpg" alt="2003"/>
 </p>
 
-2003 was a beast of a year. _Prince of Persia: The Sands of Time_, _Max Payne 2: The Fall of Max Payne_, _Command & Conquer: Generals_, and _Warcraft III: The Frozen Throne_? Take me back, please.
+2003 was a beast of a year. _Prince of Persia: The Sands of Time_, _Max Payne 2: The Fall of Max Payne_, _Command & Conquer: Generals_, and _Warcraft III: The Frozen Throne_? Take me back, please!
 
 # 2002
 <p align="center">
