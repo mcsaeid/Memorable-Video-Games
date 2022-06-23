@@ -25,7 +25,7 @@ Out of all the games above, I only played [_Twelve Minutes_](https://twitter.com
   <img src="https://user-images.githubusercontent.com/63400670/135312941-f1cf5233-9608-49b2-8ecb-ad4a74597c23.jpg" alt="2020"/>
 </p>
 
-2020 gave me one of my favorites of all time, [_Control_](https://twitter.com/mcsaeid/status/1294029517359587330), and we celebrated its second birthday last month on August 27, 2021. With just the right amount of weird, phenomenal storytelling, and drop-dead gorgeous visuals, it deserves all the praise it gets.
+2020 gave me one of my favorites of all time, _Control_, and we celebrated its second birthday last month on August 27, 2021. With just the right amount of weird, phenomenal storytelling, and drop-dead gorgeous visuals, it deserves all the praise it gets.
 
 Kudos to everyone at Remedy.
 
