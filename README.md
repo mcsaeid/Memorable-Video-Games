@@ -1,7 +1,7 @@
 # 🕹 Memorable Video Games: An Introduction
 Video games, as a creative medium, have had a tremendous influence on me over the decades. As a means to celebrate, I want to take a look back at some of the most memorable titles of the past twenty years.
 
-Each individual collage features twelve prominent games of the same year, followed by a short description. (This was initially published as a Twitter thread and later turned into a [Moment](https://twitter.com/i/events/1496211458907987972).) As a visual person and someone who appreciates image quality, probably the biggest challenge in creating this was finding high-quality cover art, especially for older titles. Some even had to be re-created. However, I do believe the things that challenge you the most also _teach_ you the most.
+Each individual collage features twelve prominent games of the same year, followed by a short description. As a visual person and someone who appreciates image quality, probably the biggest challenge in creating this was finding high-quality cover art, especially for older titles. Some even had to be re-created. However, I do believe the things that challenge you the most also _teach_ you the most.
 
 <p align="center">
   <img src="https://user-images.githubusercontent.com/63400670/135310846-3d32d556-42b3-4210-87c8-5fe1eba26ac4.png" alt="Collage"/>
