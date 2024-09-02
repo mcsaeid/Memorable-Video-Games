@@ -90,7 +90,7 @@ I also played *Resident Evil 3*, which I enjoyed. Not as much as *Resident Evil 
   <img src="https://user-images.githubusercontent.com/63400670/135319254-74593d94-bbe8-41b8-a7e6-b7bf2cbdd799.jpg" alt="2019"/>
 </p>
 
-2019 was the year I got back into gaming after a seven-year break, reuniting with a long-lost passion that felt just as fulfilling as discovering it for the first time. So many greats came out that year, and I have yet to play most of them, but *Resident Evil 2* and *A Plague Tale: Innocence* are ones that stood out for me the most.
+2019 was the year I got back into gaming after a seven-year break, reuniting with a long-lost passion that felt just as fulfilling as discovering it for the first time. So many greats came out that year, and I have yet to play most of them, but *Resident Evil 2* and *A Plague Tale: Innocence* were the ones that stood out for me the most.
 
 # 2018
 <p align="center">
