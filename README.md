@@ -57,6 +57,7 @@ Speaking of innovation, *Sifu* and *Stray*, despite being nothing alike, share o
 
 Of all the above, I only played *Twelve Minutes* in 2021. It’s a fresh take on an old genre, and one that I got a kick out of. Since then, I managed to get into *Forza Horizon 5*, and I have been hooked! It is incredibly entertaining and quite addictive, there’s great variety, and it never stops being fun—a personal ten out of ten. If you’re a driving enthusiast like me, don’t sleep on the *Horizon* series. With Microsoft announcing *Forza Horizon 4* being delisted from digital platforms (Microsoft Store and [Steam](https://store.steampowered.com/app/1293830/Forza_Horizon_4)) on December 15, 2024, now would be a great time to add this superb, content-filled arcade racer to your library.
 
+### *Forza Horizon 5*
 <p align="center">
   <img src="https://github.com/user-attachments/assets/dc3662f7-5b7f-4829-838e-59b7a9838ae3" alt="Forza Horizon 5 (2021)"/>
 </p>
@@ -75,6 +76,7 @@ I’d like to give a big shoutout to one of my all-time favorite indies. There�
 
 2020 gave me one of my favorites of all time, *Control Ultimate Edition*, and we celebrated its fifth birthday last week on August 27, 2024. With just the right amount of weird, phenomenal storytelling, and drop-dead gorgeous visuals, *Control* deserves all the praise it gets. It laid the groundwork for the Remedy Connected Universe, confirming that it, along with *Max Payne* and *Alan Wake*, share the same universe. Alan Wake himself appears in the *AWE* expansion, giving fans of the 2010 cult classic plenty to chew on. You can read my impressions of this masterpiece [here](https://graph.org/Remedys-Control-A-Generation-Defining-Masterpiece-02-10).
 
+### *Control Ultimate Edition*
 <p align="center">
   <img src="https://github.com/user-attachments/assets/5d8bcb33-fee9-4fd3-82c2-2e9886cd32ed" alt="Control Ultimate Edition (2020)"/>
 </p>
@@ -278,6 +280,7 @@ And as for [*Counter-Strike*](https://fragfriend.com/category/counter-strike), w
 
 2001, of course, holds a very special place in my heart because of *Max Payne* and *Grand Theft Auto III*. I wish I could tell you how or why. I guess no one will ever truly know how much these two—among many, many others—mean to me.
 
+### *Max Payne*
 <p align="center">
   <img src="https://github.com/user-attachments/assets/7b2b02f6-2c94-4b9a-80df-6e676f99a7bd" alt="Max Payne (2001)"/>
 </p>
